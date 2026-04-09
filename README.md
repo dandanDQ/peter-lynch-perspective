@@ -1,4 +1,4 @@
-# 🎯 Peter Lynch Perspective
+# 🎯 彼得·林奇 · AI 投资顾问
 
 > **"Behind every stock is a company. Find out what it's doing."**
 
